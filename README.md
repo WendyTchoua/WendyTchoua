@@ -7,7 +7,7 @@
 - 💞️ Je cherche à collaborer sur des projets académiques ou professionnels axés sur le traitement des données et la création d'outils décisionnels.
 -  📫 Comment me joindre : 
   - LinkedIn : [www.linkedin.com/in/wendy-clémentine-tchoua-87b679217]
-  - Email : [wendytchoua43@gmail,com]
+  - Email : [wendytchoua43@gmail.com]
 
 ---
 ⚡ **Mes compétences techniques :**
